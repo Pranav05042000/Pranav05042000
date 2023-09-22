@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pranav05042000,
+👋 Hi, I’m @Pranav05042000,
 
 👀 I'm interested in exploring the world of coding and technology.
 
